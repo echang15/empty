@@ -1,1 +1,1 @@
-hello world again. Eric is awesome!
+hello world again. Eric sucks!
