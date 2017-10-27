@@ -1,1 +1,1 @@
-eric is awesome!
+eric sucks!
