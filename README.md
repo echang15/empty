@@ -1,1 +1,1 @@
-Hello! Eric is awesome!
+Hello! Eric sucks!
