@@ -1,1 +1,0 @@
-eric is really awesome!
