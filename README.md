@@ -1,4 +1,4 @@
-code 4 good is awesome!
+code 4 good delaware is awesome!
 
 
-eric is awesome!
+eric is very awesome!
