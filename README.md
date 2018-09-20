@@ -1,3 +1,3 @@
-Code 4 Good is awesome.
+Code 4 Good is very awesome.
 
-Eric is very freaking cool.
+Eric is actaully very cool.
