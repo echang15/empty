@@ -1,3 +1,3 @@
-code 4 good is awesome
+code 4 good is awesome!
 
-eric is really awesome!
+eric is really quite awesome!
