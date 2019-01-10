@@ -1,3 +1,3 @@
 Hackathons are fun
 
-Eric is very  awesome!
+Eric is actually very  awesome!
